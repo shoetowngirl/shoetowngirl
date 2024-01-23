@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that will help me get my head around it!
 - 📫 How to reach me harriet.roach1@nhs.net
 - 😄 Pronouns: My handle should give you a clue ...
-- ⚡ Fun fact: I have absolutely no background in numbers, maths or stats. I did a politics and language degree so everything I know, I have figured out for myself!
+- ⚡ Fun fact: I have absolutely no background in numbers, maths or stats. I did a politics and language degree so how I ended up here is anyone's guess!  I am also mildly obsessed with Concorde
 
 <!---
 shoetowngirl/shoetowngirl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
